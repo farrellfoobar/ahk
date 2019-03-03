@@ -1,0 +1,3 @@
+^7::
+Send, FUUUCKING MOTHER FUCKER
+return
